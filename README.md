@@ -1,7 +1,7 @@
  
 <h2>ﾟ･✧☁・Opa bão? Eu sou o Isa 💻 </h2>
 
-<h3>ﾟ･✧🛸・Me chama no discord lá pra mim te roubar. Digo... Pra nois bater um papo!</h3>
+<h3>ﾟ･✧🛸・Me chama no discord</h3>
  ​<p align="center" > 
  ​    <img src="https://discord.c99.nl/widget/theme-4/713499323672821900.png" /> 
 
