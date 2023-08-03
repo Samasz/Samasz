@@ -1,7 +1,7 @@
 </p>
 
  ​<p align="center" > 
- <h2>ﾟ･✧☁・Opa bão? Eu sou o Isa 💻 </h2>
+ <h2>ﾟ･✧☁・ Oie, eu sou a Isa 💻 </h2>
 
 </p>
 
